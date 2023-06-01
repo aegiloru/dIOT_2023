@@ -1,1 +1,1 @@
-Clase del 24-Mayo-2023
+Clase del miercoles 31-Mayo-2023
